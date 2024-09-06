@@ -1,1 +1,1 @@
-Cakrs shop
+Cakes shop
